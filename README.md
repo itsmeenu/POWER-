@@ -1,2 +1,1 @@
-power BI
-![Uploading naan mudhalvan.png…]()
+POWER-
